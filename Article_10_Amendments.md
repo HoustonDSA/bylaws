@@ -1,0 +1,2 @@
+# ARTICLE X. Amendments
+Proposed amendments to these Bylaws must be made by written resolution, endorsed by five members of the Local chapter of DSA, and submitted to the Executive Committee a month in advance of a General or Regular Meeting.  The Executive Committee is required to provide the Local membership with two weeks’ written notice of the proposed amendments.  The amendment must be approved by a majority vote of two consecutive Local Meetings.
