@@ -1,0 +1,2 @@
+# ARTICLE IX. Amendments
+Amendments to these Bylaws must be proposed by written resolution, endorsed by five or more members of Houston DSA, and submitted to the Executive Committee at least three weeks prior to the next Local meeting. The Executive Committee shall place the resolution on the agenda for the next Local Meeting and provide the membership with at least two weeks’ written notice of the proposed amendment(s). Amendments must be approved by a two-thirds majority vote of the Local membership in attendance to take effect.
